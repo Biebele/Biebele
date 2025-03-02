@@ -4,7 +4,7 @@ I’m interested in Data Analyst Openings.
 I’m currently learning Data Analysis.
 I’m looking forward to collaborate with people on Data Analysis. 
 How to reach me https://www.linkedin.com/in/biebele-iritamunogha-5300731b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
- Pronouns:They/Them. 
+ Pronouns:she
  Fun fact: I love every part of Data Analysis.
 
 <!---
